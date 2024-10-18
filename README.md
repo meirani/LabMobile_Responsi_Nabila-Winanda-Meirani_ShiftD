@@ -4,10 +4,12 @@ Nabila Winanda Meirani
 H1D022108
 Shift D
 
-<hr>
+
 ## Ketentuan
 <hr>
-![WhatsApp Image 2024-10-18 at 18 44 56_2c4c9b02](https://github.com/user-attachments/assets/28e6fc1f-3f0c-4dad-b96e-63c120ffa208)
+
+![WhatsApp Image 2024-10-18 at 18 44 56_e310a1c4](https://github.com/user-attachments/assets/f77d727d-ac4b-45a3-80eb-8464eed00ce1)
+
 
 
 <hr>
