@@ -11,8 +11,6 @@ Shift D
 ![WhatsApp Image 2024-10-18 at 18 44 56_e310a1c4](https://github.com/user-attachments/assets/f77d727d-ac4b-45a3-80eb-8464eed00ce1)
 
 
-
-<hr>
 ## Screenshot
 <hr> 
 
